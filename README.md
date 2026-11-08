@@ -1,2 +1,0 @@
-perpussasiw
-mencoba membuat perpus
